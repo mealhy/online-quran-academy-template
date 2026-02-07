@@ -1,1 +1,0 @@
-# online-quran-academy-template
